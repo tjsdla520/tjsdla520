@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+1991.07.01
+email - sungchul520@gmail.com
+github - https://github.com/tjsdla520
+portfolio - https://www.notion.so/tjsdla520
